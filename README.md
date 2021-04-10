@@ -1,4 +1,4 @@
-# Precautions-to-Take-During-and-After-Flood
+# Precautions-to-Take-During-Flood
 
 
 A flood can wreak havoc in many ways in a human’s
