@@ -102,6 +102,8 @@ Both standing and running floodwater is dangerous to humans in many ways. They c
 
 
 • Broken power lines can surge electrical charge through floodwater that may electrocute you.
+
+
 • If you are stuck in floodwater for too long, you may get Trench Foot, where your legs go numb, blotchy, and painful.
 
 
