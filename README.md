@@ -70,6 +70,8 @@ Check out the below tips that you can follow after a flood.
 
 
 • Do not eat raw vegetables and fruits from your farm or garden if it was submerged in floodwater.
+
+
 • Drink only boiled water and eat only those food items that are prepared cautiously.
 
 
